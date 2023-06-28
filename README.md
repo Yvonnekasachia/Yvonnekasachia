@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Yvonne Kasachia from Nairobi, Kenya
 - 👀 I’m a Certified Nursing Assistant and Content Creator
-- 🌱 I’m currently learning cybersecurity and Project Management and to be a hundred percent honest I am loving it
+- 🌱 I’m currently learning cybersecurity and Project Management and to be honest I am loving it
 - 💞️ I’m looking to gain more knowledge and collaborate on opportunities that revolve around Content Creation, Cybersecurity, Health, or Program management 
 - 📫 How to reach me Email: Official_yvonka@yahoo.com
 
